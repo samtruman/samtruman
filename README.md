@@ -1,4 +1,4 @@
-# Hi, I'm samtruman 👋
+# Hi, I'm Samtruman 👋
 
 **Innovation & Service Strategy | Tech Enthusiast**
 
